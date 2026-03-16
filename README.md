@@ -9,3 +9,6 @@ Currently, I work as a part-time frontend developer for the "Finanz Informatik",
 Whether it's software development, woodworking or cooking, I always strive to do my best and have fun along the way. 
 
 Welcome to my profile! 🎉
+
+
+P.S.: If you want to support my work, please visit my [Ko-fi Sponsor Page](https://ko-fi.com/majorenkidu)
