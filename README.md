@@ -12,3 +12,5 @@ Welcome to my profile! 🎉
 
 
 P.S.: If you want to support my work, please visit my [Ko-fi Sponsor Page](https://ko-fi.com/majorenkidu)
+
+<a href='https://ko-fi.com/W7W1D5JTZ' target='_blank'><img height='36' style='border:0px;height:36px;' src='https://storage.ko-fi.com/cdn/kofi2.png?v=6' border='0' alt='Buy Me a Coffee at ko-fi.com' /></a>
